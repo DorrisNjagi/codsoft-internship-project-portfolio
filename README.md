@@ -1,2 +1,0 @@
-# codsoft-internship-project-portfolio
- 
